@@ -6,7 +6,7 @@
 
 <p align="center">
   <a href="https://666filmizle.com/film/hesaplasma-2-2025-izle-a1/" target="_blank">
-    <img src="https://img.shields.io/badge/🚀%20HESAPLAŞMA%202%202025%20FİLMİ%20ŞİMDİ%20İZLE%20!-🔥%20FULL%20HD%20DUBLaj%20-%23ff0000?style=for-the-badge&logo=googlechrome&logoColor=white" alt="Hesaplaşma 2 2025 İzle">
+   👉 <img src="https://img.shields.io/badge/🚀%20HESAPLAŞMA%202%202025%20FİLMİ%20ŞİMDİ%20İZLE%20!-🔥%20FULL%20HD%20DUBLaj%20-%23ff0000?style=for-the-badge&logo=googlechrome&logoColor=white" alt="Hesaplaşma 2 2025 İzle"> 👈
   </a>
 </p>
 
