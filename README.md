@@ -1,3 +1,8 @@
+İşte GitHub projen için SEO uyumlu, dikkat çekici, Google aramalarına uygun **README.md** formatında film tanıtım dosyası:
+
+---
+
+```markdown
 # 🎬 **Hesaplaşma 2 (2025) izle** | Türkçe Dublaj Full HD Film
 
 ![Hesaplaşma 2 Afişi](https://666filmizle.com/wp-content/uploads/2025/06/movie/cover/Hesaplasma-2-2025-2025-izle-737x415.jpg)
@@ -26,3 +31,31 @@
 
 ## 🔖 Etiketler (Tags)
 
+```
+
+\#Hesaplaşma2İzle #Hesaplaşma2TürkçeDublaj #AksiyonFilmleri2025
+\#FullHDİzle #Hesaplaşma2FilmSeyret #666filmizle
+\#2025Filmİzle #İntikamFilmleri #Hesaplaşma2Fullİzle
+
+```
+
+---
+
+## 📢 Tavsiye Edilen Aramalar
+
+- **Hesaplaşma 2 full hd izle**
+- **Hesaplaşma 2 türkçe dublaj izle**
+- **2025 aksiyon filmleri izle**
+- **Hesaplaşma 2 online seyret**
+- **666filmizle hesaplaşma 2**
+
+---
+
+🎥 **Filmi izlemek için zaman kaybetme!**  
+🟥 [➡️ Hemen izle](https://666filmizle.com/film/hesaplasma-2-2025-izle-a1/)
+
+---
+
+```
+
+İstersen bunu `.md` uzantılı olarak sana verebilirim ya da doğrudan GitHub'a eklemek için hazır hâle getirebilirim. Ayrıca başka filmler için de bu formatı kullanabiliriz.
