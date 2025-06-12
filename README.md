@@ -2,13 +2,19 @@
 
 ![Hesaplaşma 2 2025 Full HD izle](https://666filmizle.com/wp-content/uploads/2025/06/movie/cover/Hesaplasma-2-2025-2025-izle-737x415.jpg)
 
-> 🔗 [Filmi Hemen İzle →](https://666filmizle.com/film/hesaplasma-2-2025-izle-a1/)
+<p align="center">
+  <a href="https://666filmizle.com/film/hesaplasma-2-2025-izle-a1/" target="_blank">
+    <img src="https://img.shields.io/badge/🎬%20FİLMİ%20HEMEN%20İZLE-%20TIKLA!-%23e50914?style=for-the-badge&logo=netflix&logoColor=white" alt="Hemen İzle">
+  </a>
+</p>
 
 ## 🔥 **Hesaplaşma 2 (2025)** Hakkında
 
-**Hesaplaşma 2 izle**, aksiyon ve gerilim dolu sahneleriyle **izleyiciyi ekrana kilitleyen** etkileyici bir devam filmi! İlk filmin kaldığı yerden devam eden bu yapımda, intikam duygusuyla yanan karakterler arasında **yüksek tempolu çatışmalar** ve **akıl oyunları** izleyiciyi bekliyor.
+**Hesaplaşma 2 izle**, adrenalin dolu sahneleri ve etkileyici senaryosuyla izleyicisini ilk dakikadan itibaren içine çeken bir yapım!  
+**Hesaplaşma 2 Türkçe dublaj izle** seçeneği ile yüksek kaliteli ve akıcı bir izleme deneyimi sunar.
 
-💣 **Hesaplaşma 2 Türkçe dublaj izle** seçeneğiyle film keyfini rahatça çıkarabilir, ayrıca altyazı seçeneğiyle orijinal dilin tadına varabilirsiniz. Gelişmiş sinematografisi, sürükleyici kurgusu ve güçlü oyuncu kadrosuyla **2025'in en çok beklenen filmleri arasında**.
+🎯 **İntikam, aksiyon ve şaşırtıcı ters köşelerle** dolu bu filmi kaçırma.  
+Bu film sadece izlenmez... **_Yaşanır!_**
 
 ---
 
@@ -16,7 +22,7 @@
 
 - ✅ **Full HD kalite** ve yüksek ses deneyimi  
 - ✅ **Reklamsız ve kesintisiz** film keyfi  
-- ✅ **Aksiyonun ve intikamın doruk noktası**
+- ✅ **2025'in en çok konuşulan aksiyon filmi**
 
 ---
 
@@ -37,12 +43,6 @@
 
 ---
 
-🎥 Daha fazla kaliteli içerik için [666filmizle.com](https://666filmizle.com) adresini ziyaret edin!
+📽️ Daha fazla kaliteli içerik için [666filmizle.com](https://666filmizle.com) adresini ziyaret etmeyi unutma!
 
-> 📌 Unutmayın: **_Hesaplaşma 2 2025 izle_**, sinema tutkunları için kaçırılmayacak bir deneyim sunuyor!
-
-
----
-
-İstersen bunu `.md` dosyasına dönüştürüp doğrudan GitHub projenize koyabilirsiniz.
-Dilersen sonraki filmler için de otomatik oluşturulabilir hale getirecek bir script yazabilirim. Yardımcı olayım mı?
+> ✅ **Bu filmi izlemeden geçme! Gerilim ve aksiyonun doruğuna sen de ortak ol!**
